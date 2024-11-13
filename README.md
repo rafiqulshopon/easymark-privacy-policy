@@ -1,1 +1,0 @@
-# easymark-privacy-policy
